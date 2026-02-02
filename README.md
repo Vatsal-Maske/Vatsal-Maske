@@ -31,7 +31,7 @@
 ---
 
 ### 📫 How to reach me
-- **Email:** vatsalmaske704@gmail.com  
+- **Email:** maskevatsal87@gmail.com  
 
 ---
 
